@@ -2,7 +2,7 @@
 
 **Instructor:** Roland Abi
 
-**Teaching Assistants (TAs):** Abraham Idu, Terkuma Saaondo and Mfeuter Joseph Tachia
+**Teaching Assistants (TAs):** Abraham Sunday Idu, Terkuma Saaondo and Mfeuter Joseph Tachia
 
 Tutorials:
 
